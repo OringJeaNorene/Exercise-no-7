@@ -1,1 +1,0 @@
-# Exercise-no-7
